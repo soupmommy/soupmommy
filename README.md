@@ -1,5 +1,5 @@
-she/her
-Zaara
+
+
 Currently a rookie! 
 always eager to learn and explore
 
